@@ -1,1 +1,1 @@
-# How-to-add-headgear-to-your-store
+# Author: philipbach02
